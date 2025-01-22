@@ -1,1 +1,1 @@
-https://jensdeg.github.io/main/
+https://jensdeg.nl
